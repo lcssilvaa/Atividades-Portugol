@@ -1,1 +1,1 @@
-# psc-lista-01-2025
+Lista de Atividades N° 1 - Una Contagem
